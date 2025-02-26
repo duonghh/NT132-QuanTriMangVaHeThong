@@ -18,3 +18,4 @@ This course equips students with specialized knowledge and skills in designing, 
 
 ## 📬 Contact
 - **💌 Email:** 1410hhd@gmail.com
+- **🔗 LinkedIn:** https://www.linkedin.com/in/hohduong/
